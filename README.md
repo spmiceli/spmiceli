@@ -7,4 +7,4 @@ the phenomenon around me. Now, I have been learning new skills in order to deriv
 I am particularly interested in data pertaining to social sciences, healthcare, geospatial & environmental science, and cataloging/recommender sites.
 
 When I graduate in May 2022, I will be pursuing entry level positions as a Data Analyst. 
-Feel free to reach out to me at:
+Feel free to reach out to me at: https://www.linkedin.com/in/spmiceli/
